@@ -1,0 +1,1 @@
+single scroll based landing pae on any digital marketing with newletter signup
